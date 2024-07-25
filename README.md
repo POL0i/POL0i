@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @POL0i a programmer still in development, nice to see you here.
